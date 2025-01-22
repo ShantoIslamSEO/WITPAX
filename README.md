@@ -1,1 +1,1 @@
-# WITPAX
+WITPAX is a <a href="https://www.witpax.com/">packaging box manufacturer</a> dedicated to helping businesses with small order requirements. By partnering with skilled factories in China, WITPAX ensures premium packaging solutions that are accessible, whether you need a few hundred or a few thousand boxes. Quality and customization are always guaranteed.
